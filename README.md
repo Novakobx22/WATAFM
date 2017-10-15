@@ -48,8 +48,12 @@ Coming Soon
 # Links
 
 Discord (You can find us in the "wata_fm" channel!): https://discord.gg/5e84grm
+
 WATA FM Twitter: (COMING SOON)
+
 Manager's Website: http://novakobx22.weebly.com/
+
 Manager's YouTube: https://www.youtube.com/user/novakobx22
+
 Manager's Twitter: https://twitter.com/RandomTweeter67
 
