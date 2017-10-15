@@ -40,7 +40,7 @@ Saturday | All Genre Saturday (All Day): Feel free to post music from any genre 
 6. If you have music you created that you would like to submit into the queue, that is absolutely fine, unless you self-promote. 
 
 
-*HOW TO GET THE DJ/VIP ROLE(S)*
+# Roles
 
 Coming Soon
 
