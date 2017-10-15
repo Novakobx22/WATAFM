@@ -49,7 +49,7 @@ Coming Soon
 
 Discord (You can find us in the "wata_fm" channel!): https://discord.gg/5e84grm
 
-WATA FM Twitter: (COMING SOON)
+WATA FM Twitter: https://twitter.com/WATA_FM
 
 Manager's Website: http://novakobx22.weebly.com/
 
