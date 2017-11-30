@@ -6,23 +6,7 @@ Video Games &amp; Chill. A radio station created in Dubtrack.FM.
 
 # Events
 
-Sunday | Easy Listening Breakfast (7 AM - 2 PM EST): Rise and shine! It's Sunday morning, so why not start your day with some easy listening music? From 7 AM to 2 PM Eastern Standard Time every Sunday, we'll play easy listening music to our viewers. During this time, only easy listening music is allowed. No video game music or any music that is not considered to be easy listening music.
-
-Also Sunday | Shitpost Frenzy (8 PM - 10 PM EST): Finish the weekend with some good ol' meme music! For two hours, we'll accept nearly any memes for music!
-
-EVENT RULES FOR SHITPOST FRENZY:
-
-1. No ear-rape.
-2. Keep common meme songs, like All-Star and Rick Roll, to a limit.
-3. While some swears are allowed, songs that are littered with them are strictly forbidden.
-
-Tuesday | Cartoon Tuesday (All Day): Relive the 90's with Cartoon Tuesday! Every Tuesday, WATA FM will play music from classic cartoons, whatever channel it was on back in the day! We will also accept music from current cartoons.
-
-Thursday | Throwback Thursday (All Day): It's time to go back in time! Every Thursday, viewers can submit video game music from every console/handheld console all the way up to the GameCube/Dreamcast/PS2. This is the only day where chill music is forbidden and only video game music can be played.
-
-Saturday | All Genre Saturday (All Day): Feel free to post music from any genre all day long! Want to play jazz? That's allowed. Want to submit rock? That's completely fine. During this event, you can submit any type of music as long as it doesn't break the rules!
-
-*During all events, except for Easy Listening Breakfast and Throwback Thursday, you can still submit regular video game/chill music. During ELB, video game music is forbidden, and during Throwback Thursday, chill music that
+ALL NORMAL EVENTS HAVE BEEN POSTPONED UNTIL FURTHER NOTICE FOR THE WATA FM CHRISTMAS PARTY. FROM NOVEMBER 30TH UNTIL JANURARY 1ST, YOU CAN SUBMIT ANY CHRISTMAS MUSIC AS LONG AS IT FOLLOWS THE WATA FM RULES. 
 
 
 # Rules
